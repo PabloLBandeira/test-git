@@ -11,4 +11,3 @@
 
 ### Rendimento
 Serve até 3 pessoas que estão desesperadas por café e aceitariam tomar isso. 
-
